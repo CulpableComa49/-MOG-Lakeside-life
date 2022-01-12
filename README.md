@@ -1,1 +1,1 @@
-# -MOG-Lakeside-life
+# eXodus - Chernarus-PVP/PVE-Modded Guns/Vehicles
